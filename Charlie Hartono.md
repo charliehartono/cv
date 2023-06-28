@@ -53,25 +53,25 @@ Progressively advanced from a Franchise consultant role to Sales & Marketing Coo
 
 ## Professional Development & Certifications
 
-- LinkedIn – Fostering Innovation
-- LinkedIn – Master Digital Transformation
-- LinkedIn – Master Microsoft Power BI
-- LinkedIn – Master Dashboards and Data Viz in Power BI
-- LinkedIn – Digital Transformation for Tech Leaders
-- LinkedIn – Master the Fundamentals of AI and Machine Learning
-- LinkedIn – Master Digital Marketing
-- LinkedIn – Master In-Demand Professional Soft Skills
-- LinkedIn – Master R for Data Science
-- Project Management Institute – Six Sigma: Black Belt
-- The University of Edinburgh – Critical Thinking in Global Challenges
-- University of Pennsylvania – Creativity, Innovation, and Change
+- [LinkedIn – Fostering Innovation](https://drive.google.com/file/d/1t_pzqxYdYPIPtspR0figUFsZia-3bREd/view)
+- [LinkedIn – Master Digital Transformation](https://drive.google.com/file/d/1KRN3jW40-nuxIFDb-hAP11lLelOImoQk/view)
+- [LinkedIn – Master Microsoft Power BI](https://drive.google.com/file/d/1Iu25aZHcQTreY7WYkgBNcKruiey1Y0ao/view)
+- [LinkedIn – Master Dashboards and Data Viz in Power BI](https://drive.google.com/file/d/15J8C3yeK5T2Yk4KcN35s2ZK9lzttNK5y/view)
+- [LinkedIn – Digital Transformation for Tech Leaders](https://drive.google.com/file/d/1uexkXKDTr4IopQ6CJtGGezErxbRW651t/view)
+- [LinkedIn – Master the Fundamentals of AI and Machine Learning](https://drive.google.com/file/d/11E7RUcRWEEqzV7GFAUoWnuMu_4LkmIRO/view)
+- [LinkedIn – Master Digital Marketing](https://drive.google.com/file/d/1-Rxw5tYyCkcE0ORf4JRvQcdZ_yaemg2Q/view)
+- [LinkedIn – Master In-Demand Professional Soft Skills](https://drive.google.com/file/d/1F-jp0of21E-TxOxMHSFeaqNpluaG_V6a/view)
+- [LinkedIn – Master R for Data Science](https://drive.google.com/file/d/1vJ9IdoASYbQMDiElckyN7D82k_5ZvltK/view)
+- [Project Management Institute – Six Sigma: Black Belt](https://drive.google.com/file/d/11AhRQLq5SBAp4SzT3tvsxD4CHd1Eh-J_/view)
+- [The University of Edinburgh – Critical Thinking in Global Challenges](https://drive.google.com/file/d/0By9fypEgCwdDdzVTdGFEUFRIODg/edit?resourcekey=0-lHRbePEOM3QcGHYatjX3yA)
+- [University of Pennsylvania – Creativity, Innovation, and Change](https://drive.google.com/file/d/0By9fypEgCwdDakFteGZ1YTMzNGM/view?resourcekey=0-dWSTaOnikABh15q7rmaQaA)
 
 ## Contributions & Publications
 
-- Investing in the Malawian youth and the country's future – UNICEF Office of Innovation
-- The Difference Between Strong and Rubbish Youth Engagement – UNICEF Office of Innovation
-- U-Report Kicks Off with Football Super League – UNICEF Office of Innovation
-- Pengembangan Kapasitas Remaja Perempuan Indonesia Bidang STEM - Menkominfo
+- [Investing in the Malawian youth and the country's future – UNICEF Office of Innovation](https://www.unicef.org/innovation/stories/investing-malawian-youth-and-countrys-future)
+- [The Difference Between Strong and Rubbish Youth Engagement – UNICEF Office of Innovation](https://www.unicef.org/innovation/U-Report/strong-youth-engagement-u-report-maxims)
+- [U-Report Kicks Off with Football Super League – UNICEF Office of Innovation](https://www.unicef.org/innovation/U-Report/malawi-kickoff-with-football-super-league)
+- [Pengembangan Kapasitas Remaja Perempuan Indonesia Bidang STEM - Menkominfo](https://www.kominfo.go.id/content/detail/29412/siaran-pers-no-111hmkominfo092020-tentang-kominfo-dukung-pengembangan-kapasitas-remaja-perempuan-indonesia-bidang-stem/0/siaran_pers)
 
 ## References
 
