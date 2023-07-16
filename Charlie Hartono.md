@@ -8,7 +8,7 @@ Astute Senior Management professional with +15 years of working experience in fu
 
 **Strategic Partnerships Advisor – Ministry of Education, Culture, Research and Technology**  
 Oct 2022 – Present  
-Voluntarily establishing robust connections between the private sector and the Ministry to catalyze innovative partnerships for Indonesian Education.
+Voluntarily establishing robust connections between C-levels in the private sector and the Ministry to catalyze innovative partnerships for the Kampus Merdeka program.
 
 **U-Report Global Country Support – UNICEF New York**  
 Sep 2021 – Aug 2022  
