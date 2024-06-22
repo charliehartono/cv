@@ -5,46 +5,51 @@
 Astute Senior Management professional with +15 years of working experience in fundraising, corporate partnership, commercial awareness, and business development across the profit and not-for-profit sectors. A dynamic global citizen with a servant leadership track record of managing projects in volatility, uncertainty, complexity, and ambiguity (VUCA) environment.
 
 ## Experience
+**Country Director – AVPN Indonesia**  
+Nov 2023 – Present  
+· Elevate AVPN's profile and influence in Indonesia by spearheading strategic media engagement and industry event initiatives, and fostering enduring relationships with current and prospective partners.
+
+· Proactively collaborate with key stakeholders across the social investment spectrum, including foundations, family offices, financial services, private equity, corporations, intermediaries, government, and universities, to advance AVPN's mission.
 
 **Strategic Partnerships Advisor – Ministry of Education, Culture, Research and Technology**  
 Oct 2022 – Present  
-Voluntarily establishing robust connections between C-levels in the private sector and the Ministry to catalyze innovative partnerships for the Kampus Merdeka program.
+· Voluntarily establishing robust connections between C-levels in the private sector and the Ministry to catalyze innovative partnerships for the Kampus Merdeka program.
 
 **U-Report Global Country Support – UNICEF New York**  
 Sep 2021 – Aug 2022  
-Empowering and connecting 30 million+ young people in more than 90 countries globally.
+· Empowering and connecting 30 million+ young people in more than 90 countries globally.
 
 **Country Director – Viamo**  
 Nov 2020 – Sep 2021  
-Leveraging social impact projects through the utilization of mobile technology innovation with USAID, UNDP, UNICEF, GIZ, Telkomsel, XL Axiata, Save the Children, and PLAN International.
+· Leveraging social impact projects through the utilization of mobile technology innovation with USAID, UNDP, UNICEF, GIZ, Telkomsel, XL Axiata, Save the Children, and PLAN International.
 
 **Country Lead Social Impact and Philanthropy – Mastercard**  
 Apr 2020 – Nov 2020  
-Maximized $2.5 Million Mastercard Academy 2.0 flagship project in Indonesia through solid collaborations with relevant key government partners i.e., Ministry of ICT and Communication, Ministry of Education, and Ministry of Cooperative and SMEs.
+· Maximized $2.5 Million Mastercard Academy 2.0 flagship project in Indonesia through solid collaborations with relevant key government partners i.e., Ministry of ICT and Communication, Ministry of Education, and Ministry of Cooperative and SMEs.
 
 **Digital, Partnerships and Innovation Director – World Vision**  
 Jan 2019 – Feb 2020  
-Instrumental in securing $2 Million fundraising portfolios with HSBC, Japan Embassy, Australian Aid, EU, WHO, NZ Ministry of Foreign Affairs and Trade, DSM, Pertamina, Mondelez, Samsung, Hanwa Life, SCTV, Indosiar, IKEA, P&G, Mastercard, Revivo, Trisula, 3M, Accenture, Microsoft, DBS, UPH, Alfamart, Ranch Market, Ciputra, JNE, Plataran.
+· Instrumental in securing $2 Million fundraising portfolios with HSBC, Japan Embassy, Australian Aid, EU, WHO, NZ Ministry of Foreign Affairs and Trade, DSM, Pertamina, Mondelez, Samsung, Hanwa Life, SCTV, Indosiar, IKEA, P&G, Mastercard, Revivo, Trisula, 3M, Accenture, Microsoft, DBS, UPH, Alfamart, Ranch Market, Ciputra, JNE, Plataran.
 
 **U-Report Manager – UNICEF Malawi**  
 Sep 2017 – Jan 2019  
-Deployed U-Report Malawi and Internet of Good Things projects for UNICEF Global Innovation Center. Exceeded 125% target of 100K subscribers within 2.5 months – rank Malawi as the fastest growth U-Reporters globally. Successfully cut budgeted costs by 80% through rapid deal-breaker negotiations with Malawi’s two biggest telco companies.
+· Deployed U-Report Malawi and Internet of Good Things projects for UNICEF Global Innovation Center. Exceeded 125% target of 100K subscribers within 2.5 months – rank Malawi as the fastest growth U-Reporters globally. Successfully cut budgeted costs by 80% through rapid deal-breaker negotiations with Malawi’s two biggest telco companies.
 
 **Philanthropy Manager – UNICEF**  
 Mar 2016 – Aug 2017  
-Tactfully developed Indonesian philanthropists' circles to secure donors' funding to advocate UNICEF programs in Indonesia.
+· Tactfully developed Indonesian philanthropists' circles to secure donors' funding to advocate UNICEF programs in Indonesia.
 
 **Associate Director of Philanthropy – The Nature Conservancy**  
 Apr 2015 – Nov 2015  
-Constructed fundraising cultivation, solicitation, and stewardship of philanthropic donations of Indonesia's Ultra-High Net Worth supporters.
+· Constructed fundraising cultivation, solicitation, and stewardship of philanthropic donations of Indonesia's Ultra-High Net Worth supporters.
 
 **Corporate Partnerships Officer – UNICEF**  
 May 2010 – Sep 2013  
-Maintained solid Cause-Related Partnerships, Customer Fundraising, and multi-faceted partnerships with Bank Central Asia, Unilever, P&G, J&J, ING Bank, Nokia, Microsoft, Starwood, Mastercard, and Louis Vuitton to support UNICEF fundraising and in-kind portfolios.
+· Maintained solid Cause-Related Partnerships, Customer Fundraising, and multi-faceted partnerships with Bank Central Asia, Unilever, P&G, J&J, ING Bank, Nokia, Microsoft, Starwood, Mastercard, and Louis Vuitton to support UNICEF fundraising and in-kind portfolios.
 
 **Various Positions – Local and Multinational Corporations**  
 June 2003 – May 2010  
-Progressively advanced from a Franchise consultant role to Sales & Marketing Coordinator in Amway and finally, Advisory Clients Relationship Manager at IBM. Notable contributions include developing and executing market penetration and yielding double-digit growth YoY.
+· Progressively advanced from a Franchise consultant role to Sales & Marketing Coordinator in Amway and finally, Advisory Clients Relationship Manager at IBM. Notable contributions include developing and executing market penetration and yielding double-digit growth YoY.
 
 ## Awards
 
