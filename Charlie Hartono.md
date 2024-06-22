@@ -110,4 +110,4 @@ Aug 1999 – Oct 2003
 
 ## Personal Contact
 (62) 811 950 8000  
-charlie@dataku.id
+charlie@mail.ac.id
